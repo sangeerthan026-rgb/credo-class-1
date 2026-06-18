@@ -9,5 +9,6 @@ Gain in-demand skills and build a successful career in the tech industry
 - AI-Integrated Training
 - Real-World Projects
 - Job-Focused Course Structure
+- 100% Placement Support
 ---
 
